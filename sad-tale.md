@@ -4,3 +4,5 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 Axe murder.  He definitely died by axe murder.
 
 Joffrey Baratheon was the one to do Ned in, but his story was only about to begin, and let me assure you he will DEFINITELY NOT DIE!
+
+Some awesome new changes!!
